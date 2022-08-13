@@ -1,4 +1,0 @@
-- I’m @ANOM41Y.
-- I invent cool and intricate things. 
-- I envision an ever improving world into the future for mankind.
-- That's all you need to know.
